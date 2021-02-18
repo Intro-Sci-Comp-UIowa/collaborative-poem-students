@@ -11,3 +11,5 @@ But it's Iowa
 Iowa, the main exporter of soybean, pork and corn in the US
 
 Iowa, home to the smallest amount of oceanfront property in the US
+
+The heavy snow followed by a week of frost-bite alerts
