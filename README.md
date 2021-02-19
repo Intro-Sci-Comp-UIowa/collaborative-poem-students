@@ -17,3 +17,5 @@ The heavy snow followed by a week of frost-bite alerts
 Iowa, at least we're not Nebraska
 
 Iowa, where 30 degrees fahrenheit is considered a heat wave
+
+What a wonderful weather!
