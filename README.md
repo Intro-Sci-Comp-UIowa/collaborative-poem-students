@@ -20,3 +20,5 @@ Iowa, at least we're not Nebraska
 Iowa, where 30 degrees fahrenheit is considered a heat wave
 
 What a wonderful weather!
+
+In Iowa, we embrace the changing seasons with open arms.
